@@ -1,0 +1,1 @@
+It's just not Christmas at our house until this festive cake appears. This is different from other red velvets I’ve had; the icing is as light as snow. —Kathryn Davison, Charlotte, North Carolina
